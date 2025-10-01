@@ -1,5 +1,3 @@
-# nabimanyalynn.github.io
-
 # Business Applications Support Officer
 
 ## About Me
